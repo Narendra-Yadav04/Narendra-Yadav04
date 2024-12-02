@@ -19,6 +19,6 @@
 
 🌟 **Let's Connect**  
  
- 📧 yadavnarendra2232@gmail.com  
+ 📧 **Mail** yadavnarendra2232@gmail.com  
 
 
